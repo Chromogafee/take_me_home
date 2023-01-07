@@ -10,7 +10,7 @@ Room: 10/254<br/>
 [https://g.co/kgs/RbH8Gb](https://g.co/kgs/RbH8Gb)
 <br/>
 
-<ins>My Belonging</ins><br/>
+<ins>my belongings</ins><br/>
 phone<br/>
 wallet<br/>
 comb<br/>

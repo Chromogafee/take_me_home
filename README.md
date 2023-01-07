@@ -13,5 +13,6 @@ Room: 10/254<br/>
 <ins>my belongings</ins><br/>
 phone<br/>
 wallet<br/>
+keys<br/>
 comb<br/>
-bodyspray<br/>
+bodyspray

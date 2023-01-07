@@ -8,3 +8,10 @@ Floor: 8th<br/>
 Room: 10/254<br/>
 
 [https://g.co/kgs/RbH8Gb](https://g.co/kgs/RbH8Gb)
+<br/>
+
+<u>My Belonging</u><br/>
+phone<br/>
+wallet<br/>
+comb<br/>
+bodyspray<br/>
